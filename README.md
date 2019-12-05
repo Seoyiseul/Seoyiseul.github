@@ -1,1 +1,0 @@
-# seoyiseul.github
